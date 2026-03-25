@@ -48,7 +48,7 @@ Produsele sunt disponibile pentru femei, bărbați și unisex.
 🔥 Actualizat constant cu cele mai noi coduri promoționale.
 ## Alte pagini
 
-* [GSMnet](https://USERNAME.github.io/cod-reducere-gsmnet/)
-* [Fragranza](https://USERNAME.github.io/cod-reducere-fragranza/)
-* [Aronia](https://USERNAME.github.io/cod-reducere-aronia/)
+* [GSMnet](https://FlorinM332.github.io/cod-reducere-gsmnet/)
+* [Fragranza](https://FlorinM332.github.io/cod-reducere-fragranza/)
+* [Aronia](https://FlorinM332.github.io/cod-reducere-aronia/)
 
