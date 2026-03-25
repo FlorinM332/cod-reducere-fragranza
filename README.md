@@ -1,4 +1,4 @@
-# Cod reducere Fragranza 2026
+# Cod reducere Fragranza
 
 Descoperă cele mai noi coduri promoționale și reduceri pentru parfumuri Fragranza.
 
